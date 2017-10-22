@@ -1,8 +1,12 @@
 ![Testosterone 101](https://www.pornhub.com/sex/wp-content/uploads/2017/10/connection-647206_1920-1024x724.jpg)
 
+Если вы спросите случайного человека на улице о тестостероне, его ответ наверняка будет содержать комбинацию из трёх слов: "мужской половой гормон". Но ведь тестостерон также встречается у женщин, а его уровень у среднего человека варьируется на протяжении жизни. Фактически тестостерон играет гораздо бо́льшую роль в повседневной жизни, а не только в том, что касается секса. Так что же такое тестостерон, и как он влияет на человека?
+
 If you’d ask a random person on the street about testosterone, a combination of these three words may come up: “male sex hormone”. But testosterone also occurs in women, and varies in levels throughout the lifespan of the average human. In fact, testosterone has a much bigger role in daily life, not just when it comes to sex. So, what is testosterone, and how does it affect everyone?
 
 When it comes to **testosterone in males**; levels rise after puberty and stabilize at age 20 and decrease after 40. Testosterone is a type of androgen (that’s a type of hormone) produced in the Leydig cells in the testes and its effects at puberty are stimulation of protein synthesis (increases growth and muscle mass), increase of metabolism, stimulation of long bone growth, stimulation of the formation red blood cells, increase of libido and other physical changes in puberty, such as the enlargement of the larynx and growth of the penis.
+
+С увеличением возраста мужчины уменьшением уровня его тестостерона, могут начать проявляться симптомы дефицита тестостерона. Они включают в себя снижение либидо, эректильную дисфункцию, усталость, депрессию, нарушения сна
 
 As men age and their testosterone levels decrease, symptoms of testosterone deficiency may begin to occur. They include reduced libido, erectile dysfunction, fatigue, depression, sleep disturbance, decline in mental function, hot flashes and decreased vitality. More general physical changes that occur as a result of decreasing testosterone levels include loss of muscle mass, increase of body fat, hair loss, breast growth and loss of bone mineral density. Other, more serious symptoms can include metabolic syndrome, insulin resistance and cardiac disease.  Diagnosis of testosterone deficiency is based on measuring total serum testosterone (below 300 ng/dl). Some diseases (like diabetes or COPD) and medications (like opioids, chemotherapy, or antiretroviral therapy) can also cause lower testosterone in men.
 
