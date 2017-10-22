@@ -1,6 +1,6 @@
 ![Testosterone 101](https://www.pornhub.com/sex/wp-content/uploads/2017/10/connection-647206_1920-1024x724.jpg)
 
-Если вы спросите случайного человека на улице о тестостероне, его ответ наверняка будет содержать комбинацию из трёх слов: "мужской половой гормон". Но ведь тестостерон также встречается у женщин, а его уровень у среднего человека варьируется на протяжении жизни. Фактически тестостерон играет гораздо бо́льшую роль в повседневной жизни, а не только в том, что касается секса. Так что же такое тестостерон, и как он влияет на человека?
+Если вы спросите случайного человека на улице о тестостероне, его ответ наверняка будет содержать комбинацию из трёх слов: "мужской половой гормон". Но ведь тестостерон также встречается у женщин, а его уровень у среднего человека варьируется на протяжении жизни. На самом деле тестостерон играет гораздо бо́льшую роль в повседневной жизни, а не только в том, что касается секса. Так что же такое тестостерон, и как он влияет на человека?
 
 If you’d ask a random person on the street about testosterone, a combination of these three words may come up: “male sex hormone”. But testosterone also occurs in women, and varies in levels throughout the lifespan of the average human. In fact, testosterone has a much bigger role in daily life, not just when it comes to sex. So, what is testosterone, and how does it affect everyone?
 
